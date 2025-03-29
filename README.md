@@ -1,2 +1,2 @@
-Link:-https://65d8c3fdb91d7c2115a1dcfa--charming-swan-726988.netlify.app/
+Link:-https://model-btkr8hjo5-sainirishabh01s-projects.vercel.app/
 for better View use PC/Laptop
